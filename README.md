@@ -1,8 +1,8 @@
 # (Edelsteine) So Erhalten sie Kostenlose Juwelen in Clash Royale Bekommen für iOS und Android
 
-## [KLICKEN SIE HIER](https://lokiesguide.store/de/6d8f6f3/?s=clashroyalede)
+## [KLICKEN SIE HIER](https://www.ravagegaming.monster/gaming/6d8f6f3/?s=clashroyalede)
 
-## [KLICKEN SIE HIER](https://lokiesguide.store/de/6d8f6f3/?s=clashroyalede)
+## [KLICKEN SIE HIER](https://www.ravagegaming.monster/gaming/6d8f6f3/?s=clashroyalede)
 
 
 Kostenlose Juwelen und Gold für Clash Royale findest du genau hier! Mit diesem Clash Royale Hack kannst du dir innerhalb sehr kurzer Zeit, unendlich viele Juwelen und Gold generieren und hast deutlich mehr Spaß wie bisher. 
